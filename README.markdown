@@ -71,6 +71,4 @@ I'm currently obsessed with this VR game that's kinda like Beat Saber but u figh
 
 ### 📫 Wanna talk?
 
-Hit me up at yrewcast@outlook.com or just DM me on Twitter!
-
 ![visitor badge](https://visitor-badge.laobi.icu/badge?page_id=Cartwood.Cartwood)
